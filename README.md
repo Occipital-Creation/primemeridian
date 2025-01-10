@@ -1,1 +1,2 @@
-# primemeridian 'Creation collective binary meteorology, ' interacts with harvested collective lifeform prophecy from anthropologic creation intuitive transcendental lifesystem forces.  
+# primemeridian 'Creation collective binary orientation, ' interacts with harvested 'transcendental' lifeform prophecy,  
+To review blueprint schematic,  'to review implimentation,  to review ideology.
